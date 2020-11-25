@@ -2,4 +2,4 @@ Universal BPR
 ======================
 
 Untuk info lebih lanjut mengenai service kami, bisa mengunjungi:
-* https://www.universalbpr.co.id/
+* https://www.universalbpr.co.id/pinjaman
